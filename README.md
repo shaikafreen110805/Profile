@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **DSA**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: www.linkedin.com/in/shaikafreen2005 </h3>
 <p align="left">
 </p>
 
